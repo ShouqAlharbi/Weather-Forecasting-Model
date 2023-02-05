@@ -17,7 +17,7 @@ https://1drv.ms/x/s!AnRHSi9fj1UVg7ZvbUhAPCWjX0pqcg?e=Wky4jU
 
 4- Blog 
 
-https://medium.com/@nadaoteif/weather-forecasting-model-in-saudi-arabia-b51e2395b608
+https://link.medium.com/tpZg0riVpvb
 
 
 
